@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @EleanorYZhang
-- 👀 I’m interested in ethics
+用github不写代码写小说第一人
+会有小说提纲、草稿和定稿
